@@ -3,3 +3,6 @@ online men's and women's clothes and accessory retailer Thank you for your time,
 
 ![Optimized-Project1 (4)](https://github.com/Razan-Rjoub/Project1-Wireframe-Mockup/assets/111699095/b2d5b9dc-fe1b-4cfa-894d-c66ab9dc5d16)
 
+
+![Optimized-Project1 (1)](https://github.com/Razan-Rjoub/Project1-Wireframe-Mockup/assets/111699095/69539921-eedc-46e5-ac42-8db49d49007a)
+
